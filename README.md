@@ -5,7 +5,7 @@
 3.
 
 
-align="center"><a href="https://t.me/ninjaxdmusic"><img src="https://te.legra.ph/file/b71ba583e19d8cf71cffe.jpg.png"></a></p>
+align="center"><a href="https://t.me/ninjaxdmusic"><img src="https://te.legra.ph/file/b71ba583e19d8cf71cffe></a></p>
 
 
 
