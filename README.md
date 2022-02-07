@@ -29,4 +29,4 @@ align="center"><a href="https://t.me/ninjaxdmusic"><img src="https://te.legra.ph
 
 # copy paster you copy paste but give me credit of my work
 
-### main devloper = [ninjaxd] ( https://t.me/ninjaop_xd)
+### main devloper = [ninjaxd] 
